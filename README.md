@@ -1,0 +1,5 @@
+- 👋 Hi, I’m SergiWedge.
+- 👀 I’m interested in a a a a a
+- 🌱 I’m currently learning the ways of life.
+- 💞️ I’m looking to collaborate on idk.
+- 📫 How to reach me on discord mainly! at Sergi#8842
